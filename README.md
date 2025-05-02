@@ -1,3 +1,6 @@
+![GitHub Banner](![Vasanth R - Data Analytics Showcase](https://github.com/user-attachments/assets/6b109da3-c301-4f58-90af-d933b7c2c9c6)
+)
+
 # Vasanth-r
 # ⭐ Star Me on GitHub!
 
